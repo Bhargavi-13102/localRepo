@@ -1,0 +1,1 @@
+# Stop comparing and be yourself. Nobody cares. Be happy.
